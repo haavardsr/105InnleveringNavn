@@ -4,10 +4,9 @@ Håvard
 Ammar Haddad
 
 ooooog MAGNAAAAA
+	
+Henning er med
 
 Jokke mafakka nr2
-
-
-
 
 Omer
